@@ -1,3 +1,1 @@
-http://yeniaykut.github.io
-
-
+yeniaykut.github.io
