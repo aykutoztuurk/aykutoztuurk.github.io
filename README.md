@@ -1,2 +1,2 @@
 aykutoztuurk.github.io
-
+hoşgeldiniz
